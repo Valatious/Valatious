@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Valatious!
 - 👀 I’m interested in cybersecurity and programming.
-- 🌱 I’m currently in college for programming.
+- 🌱 I hold and A.A.S in COMP Sci. programming.
 - 💞️ I’m looking to collaborate on future projects.
 - 📫 How to reach me is on my Discord @valatious.
 - 😄 Pronouns: He/Him
